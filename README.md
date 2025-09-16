@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI development
 - 🌱 I’m currently learning Computer Science at LUAWMS.
 - 💞️ I’m looking to collaborate on AI projects
-- 📫 You reach me at assadmasoom17@gmail.com
+- 📫 You reach me at assad.raza.101@gmail.com
 - 😄 Pronouns: He, his, him
 - ⚡ Fun fact: Can't talk without joking.
 
